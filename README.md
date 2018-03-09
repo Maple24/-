@@ -1,2 +1,3 @@
 # time-tips
-我变了，去了很多地方。我没变，依然最爱家的味道。
+
+All of life is an act of letting go,but what hurts the most is not taking a moment to say goodbye.
